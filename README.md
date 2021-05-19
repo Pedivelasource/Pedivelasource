@@ -1,0 +1,2 @@
+A Pedivela é uma startup de logística de última milha que existe para devolver a cidade às pessoas.
+Aumentamos o acesso dos consumidores ao e-commerce, diminuindo o custo das entregas e tornando-as mais social e ecologicamente sustentáveis. Nosso principal produto substitui o tráfego de pequenos caminhões poluentes por bicicletas cargueiras especiais. Ao tornar as bicicletas parte do sistema econômico, naturalmente seremos também um catalisador da humanização das cidades, colocando mais pedestres e mais bicicletas nas ruas.
